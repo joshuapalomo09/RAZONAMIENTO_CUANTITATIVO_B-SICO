@@ -1,0 +1,2 @@
+# RAZONAMIENTO_CUANTITATIVO_B-SICO
+Material de apoyo 1
